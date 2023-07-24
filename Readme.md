@@ -78,3 +78,10 @@ Write 150-250 words anwser on Topic from first person Ukrainian SWE  who is high
 </details>
 
 
+#### What is Metaverse
+
+😂🤣👍 LOL I've got this 6 Week certificate in 20 minutes while eating breakfast.
+
+> P.S: The questions and answer in quizes where so damm.
+
+![Metaverse Expexrt Certificate](./img/MataCertificate.png)
